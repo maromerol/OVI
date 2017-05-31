@@ -1,2 +1,0 @@
-# OVI
-OVI maromerol
